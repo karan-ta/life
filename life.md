@@ -6,7 +6,7 @@
 
 - ~1995 saw a computer and played wolf game
 - ~1998 Fell in love
-- ~2005 Got first job
+- ~2005 Got first job at quinnox
 - ~2008 Saw a startup and was blown 
 - ~2009 wrote first web application to make greeting cards 
 - 04/2011 sold 85 copies of a product for 850 each 
