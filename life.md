@@ -1,6 +1,6 @@
+- My Life
 
 - 24/02/1983 Born at  sunder nagar malad , mumbai
-
 - 03/1985 Went to kindergarten , was last child to write the alphabet 'A'
 - 01/04/1998 Fell in Love for First time :)
 - 04/1976-2001 Got admission in engineering at TSEC , parents were very happy
