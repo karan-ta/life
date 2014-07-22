@@ -15,5 +15,5 @@
 - 05/2013 our baby had to be aborted as he had neural tube birth defect 
 - 11/2013 moved to a new quiter house
 - 07/2014 shifted office from charkop to profit centre in mahavir nagar
-- 07/2014 am out of cash , vineet resigns.
+- 07/2014 am out of cash. vineet resigns.
 
